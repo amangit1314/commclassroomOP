@@ -5,4 +5,4 @@
 - I love MLH
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
-- Aman Soni just want to explore and do open source development.
+- Aman Soni just want to explore and do open source development find it very beginner friendly.
